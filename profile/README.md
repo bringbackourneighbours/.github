@@ -1,4 +1,4 @@
-# Bring Back Our Neighbors
+# Bring Back Our Neighbours
 After the successful fight for the return of the I. family to Pirna, a Saxony-wide alliance has come together. In several round tables, people from politics, churches, associations and initiatives discussed how those affected can be supported and how we can stand together in solidarity against Saxony’s deportation policy.
 
 We are developing comprehensive and multilingual information material on protection against deportations. We have developed 9 flyers with short information from asylum procedures to deportation and 3 emergency cases against deportations. This information is for those affected and supporters who are critical of certain or all deportations.
